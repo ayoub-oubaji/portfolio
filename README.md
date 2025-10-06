@@ -14,5 +14,5 @@ I help companies and individuals set up, secure, and maintain their IT infrastru
 - Cloud (learning)
 
 ## Contact
-- LinkedIn: [linkedin.com/in/ayoub-oubaji](#)
-- Email: ayoub.oubaji@example.com
+- LinkedIn: www.linkedin.com/in/ayoub-oubaji-8ba83831a
+- Email: oubaji00abaji@gmail.com
